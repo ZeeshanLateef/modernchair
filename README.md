@@ -1,0 +1,1 @@
+The characteristics of modern furniture designs include an emphasis on basic forms, neutral colors, and multifunctional and minimalist designs. Also, form follows function, is visually lighter, uses shiny surfaces, incorporates modern materials, and exposes portions of the materials.
